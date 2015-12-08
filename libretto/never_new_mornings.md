@@ -22,6 +22,7 @@ I shan't ever know love
 
 as I do day's dawning.
 
+[Interlude]
 
 In chapel, I once heard
 
