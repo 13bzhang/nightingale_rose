@@ -2,6 +2,8 @@
 
 In another garden of the college.
 
+## White Rose Bush's Arietta
+
 **White Rose Bush:**
 
 What I would give for evenings 
@@ -18,29 +20,17 @@ to sing good night.
 
 [The Nightingale enters, feeling flustered.]
 
-**White Rose Bush:**
+**White Rose Bush:** Oh here she comes. Little Sister, what news in the gardens? What gossip from the bees and trees?
 
-Oh here she comes. Little Sister, what news in the gardens? What gossip from the bees and trees?
+**Nightingale:** No time for gossip. 
 
-**Nightingale:**
+**White Rose Bush:** You seem tired from flight. Rest a while here.
 
-No time for gossip. 
+**Nightingale:** Have you seen a red rose anywhere? I have searched everywhere. I must find one before dawn.
 
-**White Rose Bush:**
+**White Rose Bush:** A red rose? The late frost had killed off all those vain little things. There's no use in looking. 
 
-You seem tired from flight. Rest a while here.
-
-**Nightingale:**
-
-Have you seen a red rose anywhere? I have searched everywhere. I must find one before dawn.
-
-**White Rose Bush:**
-
-A red rose? The late frost had killed off all those vain little things. There's no use in looking. 
-
-**Nightingale:**
-
-My brother, I must tell you of my evening.
+**Nightingale:** My brother, I must tell you of my evening.
 
 ## The Nightingale and the Rose Bush's Duet
 
