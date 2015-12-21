@@ -30,7 +30,7 @@ to sing good night.
 
 **White Rose Bush:** A red rose? The late frost had killed off all those vain little things. There's no use in looking. 
 
-**Nightingale:** My brother, I must tell you of my evening.
+**Nightingale:** I must find one before dawn! Oh, my brother, I must tell you of my evening.
 
 ## The Nightingale and the Rose Bush's Duet
 
@@ -128,7 +128,7 @@ you'll ever sing?
 
 **Nightingale:**
 
-To pay for a rose with blood
+To pay for roses with blood
 
 seems but foolish.
 
@@ -146,23 +146,23 @@ What do you know of dying,
 
 the boundless dark?
 
-## The Nightingale's Song
+## The Nightingale's Aria
 
 **Nightingale:**
 
 Morning air is sweetest
 
-When light unveils the mist
+When light denudes the mist
 
-O'er gleamed fields of wheat
+o'er gleamed fields of wheat
 
-Then streams through windows
+then streams through windows
 
-To warm the cheeks of babes.
+to warm the cheeks of babes.
 
 Still, I ask, is morning
 
-Sweeter than lips meeting?
+sweeter than lips meeting?
 
 Ha, what does a bird know!
 
@@ -170,24 +170,86 @@ I shan't ever know love
 
 as I do day's dawning.
 
-[Interlude]
+-------------
 
 In chapel, I once heard
 
-An anthem floating high
+an anthem floating high
 
-To the truss where I perched.
+to the truss where I perched.
 
 They sang, as clerks of old
 
-Had sung, as I now sing,
+had sung, as I now sing,
 
-Poorly, a faint echo:
+poorly, a faint echo:
 
 "Love is as strong as death,
 
-Unyielding as the grave,
+unyielding as the grave,
 
-Weaving flashes of fire,
+alighting flares of fire,
 
-The very flame divine!"
+the very flame divine!"
+
+-------------
+
+This motet I believe 
+
+as much as my thrush soul
+
+can hold notes of beauty.
+
+I believe as I glimpse
+
+a mother cradling
+
+her child as dusk descends.
+
+I believe as I spy
+
+a lover carassing
+
+her swain as stars ascend.
+
+In believing, I fear not death. 
+
+
+**White Rose Bush:** Little Sister, I compel you! Do not awake rash thoughts!
+
+**Nightingale:** Pray for me, my bother, it will be a slow death. 
+
+**White Rose Bush:** Please listen to me! Do not--
+
+**Nightingale:** It will be morning always in God's country. But pray for me, for I dread pain.
+
+**White Rose Bush:** Little Sister, Little Sister!
+
+[She stabs herself on a thorn and bleeds onto a rose.]
+
+**White Rose Bush:** Little Sister...
+
+## The Nightingale's Motet
+
+**Nightingale:**
+
+And they sang -- 
+
+_Fortis est ut mors dilectio,_
+
+_dura sicut infernus aemulatio:_
+
+_lampades ejus lampades_
+
+_ignis atque divinum._
+
+[She dies before completing the last word "divinum."]
+
+
+
+
+
+
+
+
+
