@@ -136,7 +136,7 @@ Yet what's the heart of a bird
 
 to that of man?
 
-**Bush:**
+**White Rose Bush:**
 
 What do you know about love
 
