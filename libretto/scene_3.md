@@ -26,7 +26,7 @@ to sing good night.
 
 **White Rose Bush:** You seem tired from flight. Rest a while here.
 
-**Nightingale:** Have you seen a red rose anywhere? I have searched everywhere. I must find one before dawn.
+**Nightingale:** Have you seen a red rose anywhere? I have searched everywhere.
 
 **White Rose Bush:** A red rose? The late frost had killed off all those vain little things. There's no use in looking. 
 
