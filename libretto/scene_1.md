@@ -9,7 +9,7 @@ A Chamber Opera
 * Tom: Jay’s friend and Gail's brother, a fellow scholar; also plays the White Rose Bush
 
 # Setting
-A great University, more than 100 years ago
+A great University, more than 100 years ago, before the Great War
 
 # Scene 1
 On a sunny day in late May, four friends picnic on a meadow by a stream, not far from the University. 
