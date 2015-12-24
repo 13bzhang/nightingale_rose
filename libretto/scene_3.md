@@ -18,9 +18,9 @@ who nests above me returns
 
 to sing good night. 
 
-[The Nightingale enters, feeling flustered.]
-
 -----------------
+
+[The Nightingale enters, feeling flustered.]
 
 **White Rose Bush:** Oh here she comes. Little Sister, what news in the gardens? What gossip from the bees and trees?
 
