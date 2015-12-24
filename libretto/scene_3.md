@@ -6,19 +6,21 @@ In another garden of the college.
 
 **White Rose Bush:**
 
-What I would give for evenings 
+May May's Lady bless evenings 
 
 when bright moon beams 
 
 on all creatures, awake, asleep.
 
-Only if she
+Only pray she
 
 who nests above me returns
 
 to sing good night. 
 
 [The Nightingale enters, feeling flustered.]
+
+-----------------
 
 **White Rose Bush:** Oh here she comes. Little Sister, what news in the gardens? What gossip from the bees and trees?
 
@@ -48,7 +50,7 @@ He weeps so deeply I fear
 
 his heart will cleave.
 
-My tunes of childish sadness
+My tunes of impish sadness
 
 so pale to his;
 
@@ -100,9 +102,9 @@ spoken -- "unless" --
 
 Oh my brother,
 
-give me a lily-white rose --
+shed for me a canvas rose --
 
-your fairest one --
+your palest one --
 
 then I will impale my breast
 
@@ -162,7 +164,7 @@ to warm the cheeks of babes.
 
 Still, I ask, is morning
 
-sweeter than lips meeting?
+sweeter than lips joining?
 
 Ha, what does a bird know!
 
@@ -208,16 +210,17 @@ her child as dusk descends.
 
 I believe as I spy
 
-a lover carassing
+a lover caressing
 
 her swain as stars ascend.
 
-In believing, I fear not death. 
+In believing, I fear not the night.
 
+--------------
 
-**White Rose Bush:** Little Sister, I compel you! Do not awake rash thoughts!
+**White Rose Bush:** Little Sister, I charge you! Do not awake rash thoughts!
 
-**Nightingale:** Pray for me, my bother, it will be a slow death. 
+**Nightingale:** Pray for me, my bother, it might be a slow death. 
 
 **White Rose Bush:** Please listen to me! Do not--
 
