@@ -224,7 +224,7 @@ In believing, I fear not the night.
 
 **White Rose Bush:** Please listen to me! Do not--
 
-**Nightingale:** It will be morning always in God's country. But pray for me, for I dread pain.
+**Nightingale:** Even evening will be light in God's country. But pray for me, for I dread pain.
 
 **White Rose Bush:** Little Sister, Little Sister!
 
