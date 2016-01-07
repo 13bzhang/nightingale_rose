@@ -114,7 +114,7 @@ No, I'm afraid not. Enjoy yourself.
 
 Well, feel better. Goodbye, Jay.
 
-[Jay exits. Gail walks up to the door of the house. She sees the discarded rose and picks it up to examine it. Unsure what to do, she drops it and knocks on the door.]
+[Jay exits. Gail walks up to the door of the house. She sees the discarded rose and picks it up to examine it tenderly. She pockets it and knocks on the door.]
 
 
 
