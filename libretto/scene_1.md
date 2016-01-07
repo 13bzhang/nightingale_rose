@@ -4,7 +4,7 @@ A Chamber Opera
 
 # Personae Dramatis
 * Gail: a scholar; also plays the Nightingale 
-* Fannie: Gail’s friend, a dean’s daughter
+* Alice: Gail’s friend, a dean’s daughter
 * Jay: a scholar
 * Tom: Jay’s friend and Gail's brother, a fellow scholar; also plays the White Rose Bush
 
@@ -36,7 +36,7 @@ What little eyes, little lives
 
 Will open to gray skies?
 
-Fannie:
+Alice:
 
 I see a red robin’s breast
 
@@ -94,37 +94,37 @@ A last hurrah before graduation, Jay. I’ll try to think of the good times--
 Jay:
 And not about your exams. Little sis, I’m not worried about you, though. 
 
-Fannie:
+Alice:
 Highest honors for Gail, I’m sure!
 
 [Gail blushes and tries to hide it.]
 
-Fannie:
+Alice:
 Look at her! She’s blushing!
 
 Gail:
-Oh stop it, Fannie. 
+Oh stop it, Alice. 
 
-Fannie:
+Alice:
 Father says some are not meant for Latin or trig or verse. I guess I’m made for simpler things.
 
 Tom (under his breath):
 Or for finer things. 
 
 Jay:
-Nonsense! Fannie is for art, for music, for dancing. An aesthete she is!
+Nonsense! Alice is for art, for music, for dancing. An aesthete she is!
 
-[Fannie looks rather pleased with herself and does a little dance.]
+[Alice looks rather pleased with herself and does a little dance.]
 
 Gail (rather shyly):
 Jay, are you going to the ball on Friday?
 
 Jay:
-Of course, of course. (Suddenly feeling inspired.) Fannie, I’ve an extra ticket. Will you go with me?
+Of course, of course. (Suddenly feeling inspired.) Alice, I’ve an extra ticket. Will you go with me?
 
-[Gail tries to hide her disappointment. Fannie gives a devious smile.]
+[Gail tries to hide her disappointment. Alice gives a devious smile.]
 
-Fannie: 
+Alice: 
 Sure, I’ll go with you -- if you bring me a red, red rose. (Giggles.)
 
 Jay:
@@ -138,23 +138,23 @@ It’ll rain soon. We’d better head back soon.
 [They pack up their picnic supplies. Jay whistles while Gail hums to herself.]
 
 Jay:
-Tom and I’ll get the boat ready. Here, Fannie, let me take your basket. 
+Tom and I’ll get the boat ready. Here, Alice, let me take your basket. 
 
 [Tom and Jay exit.]
 
-Fannie:
+Alice:
 Gail, what do you think of him?
 
 Gail:
 You mean Jay?
 
-Fannie:
+Alice:
 He’s a funny one, isn’t he?
 
 Gail:
 I think as he’s nice, so very nice when he smiles. 
 
-Fannie:
+Alice:
 Though he's only a poor choral scholar. Father would never approve.
 
 
