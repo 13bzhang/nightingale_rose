@@ -12,7 +12,7 @@ A Chamber Opera
 A great University, more than 100 years ago, before the Great War
 
 # Scene 1
-On a sunny day in late May, four friends picnic on a meadow by a stream, not far from the University. 
+On a sunny day in late May, four friends picnic on a meadow by [a stream/a pond], not far from the University. 
 
 ## The May Madrigal 
 
@@ -50,7 +50,7 @@ Gail, Jay, Tom:
 
 Of all the days a scholar sings
 
-It’s May when Great St Mary rings
+It’s May when [Great St Mary/bells of St Paul] rings
 
 The closing peals of vesper tunes 
 
